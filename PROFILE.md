@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @sato-cotoco
+- 👀 I’m interested in data sience!
